@@ -1,0 +1,1 @@
+An arbitrage (or arb for short) also known as 'surebets', 'surewins' and 'miraclebets' are bet types whereby a bettor wagers on a series of events that guarantees a profit no matter the outcome of an event, or at worst, guarantees that no money can be lost but a profit can still be made depending on the result of that event.
